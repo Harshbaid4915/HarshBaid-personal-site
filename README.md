@@ -1,1 +1,1 @@
-# HarshBaid-personal-site
+# HarshBaid personal-site
